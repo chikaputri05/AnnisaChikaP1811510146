@@ -1,1 +1,5 @@
-# AnnisaChikaP1811510146
+# AnnisaChikaP1811510146![3](https://user-images.githubusercontent.com/87272568/125201394-2e530b00-e299-11eb-8bad-4866e122382a.jpeg)
+![4](https://user-images.githubusercontent.com/87272568/125201395-30b56500-e299-11eb-97f7-b9b047b58618.jpeg)
+![5](https://user-images.githubusercontent.com/87272568/125201397-31e69200-e299-11eb-9631-59a2ba42aa84.jpeg)
+![1](https://user-images.githubusercontent.com/87272568/125201400-33b05580-e299-11eb-9f8f-c8123f33d554.jpeg)
+![2](https://user-images.githubusercontent.com/87272568/125201402-34e18280-e299-11eb-8701-a10988557f75.jpeg)
